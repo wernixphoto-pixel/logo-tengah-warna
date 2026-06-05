@@ -1,0 +1,1 @@
+# logo-tengah-warna
